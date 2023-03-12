@@ -7,11 +7,11 @@
 
 ## Contact information: 
 
-** Phone: 87713815300\ 
+** Phone: 87713815300
 
-** E-mail: baiseitovdinmuhammed@gmail.com \
+** E-mail: baiseitovdinmuhammed@gmail.com 
 
-** Telegram: @dimashbaiseitov \
+** Telegram: @dimashbaiseitov 
 
 
 ---
